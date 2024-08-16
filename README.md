@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+.![](https://www.icegif.com/wp-content/uploads/cat-icegif-19.gif)
+.![](https://media1.tenor.com/m/kTCpOtE7zBoAAAAd/cat-blinking.gif)
+.![](https://media1.tenor.com/m/_1hMqyFC4LEAAAAd/pop-cat.gif)
+.![](https://media1.tenor.com/m/bMDFtFvQCL8AAAAd/jiggy-getting-jiggy-with-it.gif)
+.![](https://media.tenor.com/wghg0MdrK7gAAAAi/mad-rage.gif)
